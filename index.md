@@ -19,5 +19,5 @@
 - 面对人生岔路口的时候也会焦虑+严重内耗，主要是出于对未来选择与可能性的纠结。不过自我调节的能力还好啦～
 - 不太爱运动，但9.28之后也在强迫自己开始每周4+次慢跑了...
 ### 爆照展现诚意
-![Image](https://github.com/NetworkMan233/NetworkMan233.github.io/blob/main/me.jpg)
+![Image](/Users/apple 1 2/Desktop/me.jpg)
 - 平常没有自拍习惯，拍得背景之类的可能有缺陷还请见谅～
