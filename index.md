@@ -19,5 +19,5 @@
 - 面对人生岔路口的时候也会焦虑+严重内耗，主要是出于对未来选择与可能性的纠结。
 - 有的时候会对一些事情比较固执，不过一般会在短时间之内想明白～
 ### 爆照展现诚意
-![Image](src)
+![Image](https://github.com/NetworkMan233/NetworkMan233.github.io/blob/main/me.jpg)
 - 平常没有自拍习惯，拍得背景之类的可能有缺陷还请见谅～
